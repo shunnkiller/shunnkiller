@@ -1,8 +1,13 @@
--  Heya, I’m @shunnkiller ! ;b
-- 👀 I’m interested in discord, coding, drawing, any shit any who any how, philosophy and blackjack.
-- 🌱 I’m currently learning code and documentations in sm shit..
-- 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me ... idk...
+ ૮꒰๑´ `๑꒱ა Heya, I’m @shunnkiller ! 
+𔓕 spa/eng - he/they - minor ?? neurodiv.
+
+- I’m learning code and documentations of (javascript/node.js)
+
+- I like roleplaying, drawing, listening to music and a lot more!
+
+- I'm currently active on discord! (@rixxpsych) my dms / frnd reqs are open!
+
+- Im a little experienced in discord, using inspos, or etc! if you want, dm me 2 hire! (own/staff/user/etc)!
 
 <!---
 shunnkiller/shunnkiller is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
